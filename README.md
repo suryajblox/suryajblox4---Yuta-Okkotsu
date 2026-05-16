@@ -1,2 +1,0 @@
-movesets made by suryajblox4
-DON'T REUPLOAD OR SHARE/GIVE THIS CODE TO ANYONE
